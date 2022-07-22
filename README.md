@@ -1,2 +1,0 @@
-# kipkoechepsom.github.io
-Portfolio
